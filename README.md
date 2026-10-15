@@ -1,0 +1,2 @@
+# premium-yoke-ring-001-yoke-ring-forging-harness-li
+Tired of losing track of custom yoke ring specs and harness link dimensions across scattered notes and spreadsheets? The Yoke Ring Forging &amp; Harness Link Craft Lab organizes every step from raw steel to finished ring.  This Notion template solves the chaos of managing multiple forging projects by providing a dedicated system for tracking ring diame
